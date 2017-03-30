@@ -1,2 +1,1 @@
-# Hello-world
-tutorial for creating new repository
+I'm terribly boring, and practice expectorating for distance, and competetive defenestration
